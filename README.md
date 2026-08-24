@@ -1,1 +1,0 @@
-# Skill-Status-da-Marca-e-Concorrentes
